@@ -1,7 +1,11 @@
-### cachorro crente
+### M I N H A    B I O
 
-`LOUVAI OS UIVADORES`
+![hello-2](https://github.com/LettyOliveira/LettyOliveira/assets/147505986/46ef0723-3f1f-4803-87f9-c117ed8782fc)
 
-![image](https://github.com/LettyOliveira/LettyOliveira/assets/147505986/b3ede830-b712-4d65-96ac-acc51d59c247) ![83ia](https://github.com/LettyOliveira/LettyOliveira/assets/147505986/d4d070c0-5e4e-4c09-8b75-cd74f30caf83)
+✨ Eu sou a Leticia, sobrenome Oliveira.
 
-![](https://wifflegif.com/gifs/61192-hello-kitty-animated-gif)
+✨ Tenho 15 anos.
+
+✨ Gosto de desenhar e ler.
+
+![hello-kitty-gif-8](https://github.com/LettyOliveira/LettyOliveira/assets/147505986/4e2ce6da-6597-435f-ac46-0acdb954322b)
